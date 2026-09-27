@@ -1,0 +1,2 @@
+# premium-knee-mill-001-knee-mill-rebuild-gib-adjust
+Stop wasting hours on guesswork and inconsistent gib adjustments — turn your knee mill rebuild into a repeatable, documented craft with a Notion system that eliminates trial and error.  The Knee Mill Rebuild &amp; Gib Adjust Craft Lab is the first Notion template designed specifically for knee mill owners who want a structured, step-by-step process for
